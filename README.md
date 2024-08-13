@@ -4,8 +4,9 @@
 - 💞️ Nas minhas horas vagas gosto de jogar no celular
 - 📫 Meun sonho é: Encontrar algo verdadeiro.
 - 😄 00001106956199SP@al.educacao.sp.gov.br
-- ⚡ Fun fact: ...
-- - !
+- ⚡
+
+- - ![](https://media1.tenor.com/m/kxpacroJWOYAAAAC/eye-roll-robert-downey-jr.gif)
 
 <!---
 KlebersonHenrique/KlebersonHenrique is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
